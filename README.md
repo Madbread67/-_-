@@ -2,6 +2,8 @@
 https://drive.google.com/drive/folders/1wp3bJCBKI2S_VBjViF7mTsoYPRtSZJqT
 ~~*[Рецепт счастья](https://docs.google.com/document/d/1w8_jE1Jzi9Pc0gEUSlwQpQHymXMk0EchdNBDwqHXnuk/edit?usp=sharing)*~~
 
+https://ru.yougile.com/board/t7d7mxstt6tj - stud_bilet
+
 оииаии оииаии
 
 ты дурной??
