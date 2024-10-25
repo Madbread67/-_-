@@ -6,7 +6,7 @@ https://drive.google.com/drive/folders/1KRrSp-C2NfTak8egyfiEg4iABOSH3iZx?hl=ru -
 
 https://ru.yougile.com/board/t7d7mxstt6tj - stud_bilet
 
-file:///home/kabinet303/%D0%97%D0%B0%D0%B3%D1%80%D1%83%D0%B7%D0%BA%D0%B8/stud-bilet-release.html
+
 
 оииаии оииаии
 
